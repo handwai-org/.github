@@ -1,1 +1,1 @@
-![Handwai_Logo_Nov2020_Logo Farbverlauf_Background_transparent_5000px - smaller size](https://user-images.githubusercontent.com/17321286/181055941-76292a08-5c25-45da-9985-e6a04ac95341.png)
+![Handwai_Logo_w_tb](https://user-images.githubusercontent.com/17321286/214807088-3807decf-6ee4-48ff-8c32-99d6b8b16e3a.png)
